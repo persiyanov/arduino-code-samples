@@ -1,1 +1,1 @@
-![](https://j.gifs.com/wjz11g.gif)
+GIF: https://gifs.com/gif/light-diodes-blinking-wjz11g
