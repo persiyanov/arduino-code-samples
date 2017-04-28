@@ -1,1 +1,1 @@
-GIF: https://gifs.com/gif/light-diodes-blinking-wjz11g
+GIF: https://youtu.be/3d3IlLoK-aQ
